@@ -180,7 +180,8 @@ Tamilnadu Pincode of Vishwaroopa Sai Baba Temple, Tiruvallur is 600087 in India<
 ![map](https://user-images.githubusercontent.com/121300272/233308472-92b40ed3-d534-4ccb-a5da-5887ce2d723f.png)
 
 ### place:
-![map](https://user-images.githubusercontent.com/121300272/233308524-046f8e31-8312-4a83-9fc2-90ef7a3ed18a.png)
+![out1](https://user-images.githubusercontent.com/121300272/233308960-807b10cf-8899-4e2e-9683-11e0ec3aa6ee.png)
+
 
 
 ## Result:
